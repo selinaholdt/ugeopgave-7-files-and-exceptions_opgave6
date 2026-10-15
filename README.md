@@ -1,1 +1,2 @@
-# ugeopgave-7-files-and-exceptions_opgave6
+Selina Holdt
+seho1001@stud.ek.dk
